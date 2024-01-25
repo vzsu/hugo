@@ -1,2 +1,2 @@
-[vzsu's blog ](https://www.ftosite.com/)https://www.ftosite.com/
+[vzsu's blog ](https://www.ftosite.com/)
 
